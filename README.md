@@ -8,9 +8,8 @@ Dejando de lado el estudio, soy aficionado de la Astronomia :milky_way:, el cine
 sin embargo recomendaria ver la Formula 1 e incluso la Formula 2 y el Fútbol europeo.
 
 Finalmente menciono a uno de los que hicieron posible la tecnologia de hoy, el gran Steve Jobs.
-https://www.uria.com/documentos/galerias/5158/documento/9283/20200420_Steve_Jobs-JGO.pdf?id=9283&fbclid=IwAR0Exq1wR4K1PFAnliTIJUI_tV3YcWk-AS1DxM3Jo_nKD1hbe1Na6EqHKc0
-Lean eso y comprenderan mucho. :dart:
-
+[🟦 Leer el discurso (PDF)](https://www.uria.com/documentos/galerias/5158/documento/9283/20200420_Steve_Jobs-JGO.pdf?id=9283&fbclid=IwAR0Exq1wR4K1PFAnliTIJUI_tV3YcWk-AS1DxM3Jo_nKD1hbe1Na6EqHKc0)
+En ese discurso entiendes muchas cosas. :dart:
 
 
 
